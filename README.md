@@ -1,4 +1,4 @@
-# Wondering Where to Buy 300+ Famous Restaurant Recipes? 📗
+# Wondering Where to Buy 300+ Restaurant Recipes? 📗
 
 You've come to the right place!
 
