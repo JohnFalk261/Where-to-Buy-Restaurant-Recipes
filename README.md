@@ -36,4 +36,4 @@ Discover where to buy 300+ restaurant recipes — go to:
 
 Common keywords used to reach this site:
 
-*where to buy restaurant recipes
+*where to buy restaurant recipes*
